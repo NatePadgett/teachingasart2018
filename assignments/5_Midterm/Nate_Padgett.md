@@ -5,7 +5,7 @@ This workshop explores art and sculpture as social actions capable of actualizin
 The first 10 minutes of the workshop will be spent exploring and discussing social sculpture, collective action, and art as
 a form of protest. 
 
-We will spend the remaining 50 minutes of the workshop exploring a contemporary social issue determines by the group 
+We will spend the remaining 50 minutes of the workshop exploring a contemporary social issue determined by the group 
 and developing a sculpture that will be staged or performed at the end of the session. Everyday materials from paper to 
 felt will be on hand for participants to incorporate into their work, with the gallery functioning as their canvas. 
 Participants must work as a group to develop the sculpture and tell a cohesive narrative, requiring trust and collaboration 
